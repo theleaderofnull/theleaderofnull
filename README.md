@@ -1,16 +1,15 @@
-## Hi there 👋
+<br />
 
-<!--
-**theleaderofnull/theleaderofnull** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align=center>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=46185D&width=435&lines=Jaden%2C+you+good%3F+Jaden%3F.." alt="Typing SVG" /></a>
 
-Here are some ideas to get you started:
+<br />
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align=center>
+<img width="736" height="408" alt="image" src="https://github.com/user-attachments/assets/e757e1c1-c147-4e92-8074-6fd91520ead1" />
+
+
+<br/>
+
+<p align=center>
+<a href="https://vanillasquid.atabook.org/">atabook</a>
