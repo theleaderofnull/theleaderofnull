@@ -5,7 +5,7 @@
     </td>
     <td valign="top">
       <h3>about me !</h3>
-      <p>· >___, invite me to ur birthday party ^_^<br>
+      <p>· >___, invite me to ur birthday party ^_^,,, BMF !<br>
       ----- vanilla / squiddo.<br>
       ↳ minor · adults dni ♡<br>
       ~ partykiller : .*</p>
