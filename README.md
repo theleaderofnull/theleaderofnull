@@ -8,7 +8,7 @@
       <p>· >___, invite me to ur birthday party ^_^,,, BMF !<br>
       ----- vanilla / squiddo.<br>
       ↳ minor · adults dni ♡<br>
-      ~ partykiller : .*</p>
+      ~ sp729 7w6 : .*</p>
     </td>
   </tr>
 </table>
