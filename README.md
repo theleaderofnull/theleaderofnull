@@ -14,6 +14,8 @@
 ↳ minor · adults dni ♡
     <p align=center>
 ~ sp729 7w6 : .*
+    <p align=center>
+- cuddles are welcome unless i have dni in my name : . !
 
 <br/>
 
