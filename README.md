@@ -16,6 +16,8 @@
 ~ sp729 7w6 : .*
     <p align=center>
 - cuddles are welcome unless i have dni in my name : . !
+    <p align=center>
+    ilm partner !
 
 <br/>
 
