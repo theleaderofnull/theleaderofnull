@@ -16,9 +16,7 @@
 ~ sp729 7w6 : .*
     <p align=center>
 - cuddles are welcome unless i have dni in my name : . !
-    <p align=center>
-    ilm partner !
-
+   
 <br/>
 
 <img width="736" height="96" alt="divider" src="https://github.com/user-attachments/assets/2c8f700c-1423-4e20-8d70-c3ca801475b7" />
